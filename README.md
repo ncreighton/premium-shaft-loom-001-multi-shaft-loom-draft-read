@@ -1,0 +1,2 @@
+# premium-shaft-loom-001-multi-shaft-loom-draft-read
+Tired of juggling paper drafts, sticky notes, and spreadsheets for your multi-shaft loom projects? This Notion template turns chaos into clarity.  The Multi Shaft Loom &amp; Draft Read Craft Studio centralizes all your drafts, threading plans, tie-up sequences, and project notes into one searchable, customizable workspace. It eliminates the frustration
